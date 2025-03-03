@@ -1,1 +1,2 @@
 # DigitalResumeMD2
+My name is Mason Doxey and I am a Senior Electrical Engineering student at Mississippi State University.  I am interested in doing some sort of major manufacturing work in my future.  I have done an internship at a steel mill in the MSU area and have learned some great skills that help me in my academics now and will help me in my career in the future.  I like to play volleyball, video games, and hang out with friends.  
